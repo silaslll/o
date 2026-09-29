@@ -58,3 +58,8 @@ Stewart and his team put out several issues of The Whole Earth Catalog, and then
 Stay Hungry. Stay Foolish.
 
 Thank you all very much.
+
+
+
+
+https://www.americanrhetoric.com/speeches/convention2004/barackobama2004dnc.htm
